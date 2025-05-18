@@ -1,5 +1,17 @@
 Hmph 
 
+Call me Shadow or Shads.
+
+I Love Latinas Sonic 
+
+A Sonadow Liker frfr
+
+The Ultimate Lifeform/Coffee and Lavender Addict
+
+A Swiftie
+
+Main: @AmyLovesSonic
+
 <!--
 **TheUltimateEdgelord/TheUltimateEdgelord** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
